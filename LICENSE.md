@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Sketch for macOS preset with premium Preset for Sketch for macOS - cloud sync and blend modes. Featuring cloud sync and blend modes, it's the best choice for
 
 
 
